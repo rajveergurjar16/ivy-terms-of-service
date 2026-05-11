@@ -1,1 +1,0 @@
-# ivy-terms-of-service
